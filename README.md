@@ -1,2 +1,1 @@
-learns
-sndjs
+learn
