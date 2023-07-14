@@ -1,1 +1,1 @@
-learns
+learn
