@@ -1,3 +1,1 @@
-learn
-bnnmm.
-a
+lear
