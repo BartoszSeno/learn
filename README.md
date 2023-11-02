@@ -1,5 +1,1 @@
-grebckajslshdkajdfosjdnamsndnybdhhyuyghjybgkjhtfyfyvyvyvgvyvyvndbsknfnfdtyfdslearn
-rtyy
-ygygu
-bvb
-nmb
+learn
