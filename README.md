@@ -1,6 +1,1 @@
-fdsafdsaflearn
-dsadasd
-fdasffadsaf
-dawsdfdsaf
-dsfsdf
-fsdaf
+learn
